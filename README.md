@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @Vendhan-b
 - 👀 I’m interested in Product Management 
-- 🌱 I’m currently learning Management of Technology
 - 💞️ I’m looking to collaborate on Product Management projects 
 - 📫 How to reach me : bvendhan90@gmail.com
 - 😄 Pronouns: He/Him
